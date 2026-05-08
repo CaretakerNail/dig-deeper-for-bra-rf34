@@ -1,4 +1,4 @@
-
+rare Script for dig deeper for brainrots offers the most advanced dig deeper for brainrots Script, with one-hit kill and auto-farm. Perfect for
 
 
 
